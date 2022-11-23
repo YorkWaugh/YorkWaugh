@@ -6,7 +6,7 @@ I am now studying computer science in JNU (Jinan University), and I am learning 
 我是暨南大学计算机系的一名新生，正在学习我的第一门编程语言——C。
 # 🎮 Games | 游戏
 I am playing GTA, Deemo, DDLC...</br>
-在玩GTA、Deeomo、DDLC…</br>
+我在玩GTA、Deeomo、DDLC…</br>
 # 📫 How to reach me ... | 你还可以在这些地方找到我…
 - Email: <yorkwaugh@outlook.com.gr>
 - QQ: 2803166078
