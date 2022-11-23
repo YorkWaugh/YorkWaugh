@@ -11,7 +11,7 @@ I am playing GTA, Deemo, DDLC...</br>
 - Email: <yorkwaugh@outlook.com.gr>
 - QQ: [2803166078](https://qm.qq.com/cgi-bin/qm/qr?k=UjyTBU1TZ2EmS20EaLBi9RzukynuHYY6)
 - Bilibili: [YorkWaugh](https://space.bilibili.com/521883959)
-- Sina Weibo: [YorkWaugh](https://weibo.com/u/6115309015)
+- Weibo: [YorkWaugh](https://weibo.com/u/6115309015)
 - Twitter: [York Waugh](https://twitter.com/york_waugh)
 - FaceBook: [York Waugh](https://www.facebook.com/profile.php?id=100083101682184)
 - Kafan: [YorkWaugh](https://bbs.kafan.cn/space-uid-1242120.html)
