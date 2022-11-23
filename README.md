@@ -1,4 +1,4 @@
-# 😊 Hello! | 你好！
+# 👋 Hello! | 你好！
 This is York Waugh, a noob who just started programming.</br>
 这里是「约克沃」，一个刚刚入门编程的萌新。</br>
 # 🌱 Learning | 学习
