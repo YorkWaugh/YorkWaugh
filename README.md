@@ -9,7 +9,7 @@ I am playing GTA, Deemo, DDLC...</br>
 我在玩GTA、Deeomo、DDLC…</br>
 # 📫 How to reach me ... | 你还可以在这些地方找到我…
 - Email: <yorkwaugh@outlook.com.gr>
-- QQ: [2803166078](https://qm.qq.com/cgi-bin/qm/qr?k=UjyTBU1TZ2EmS20EaLBi9RzukynuHYY6)
+- QQ: [2803166078](tencent://message/?uin=2803166078&Site=&Menu=yes)
 - Bilibili: [YorkWaugh](https://space.bilibili.com/521883959)
 - Weibo: [YorkWaugh](https://weibo.com/u/6115309015)
 - Twitter: [York Waugh](https://twitter.com/york_waugh)
