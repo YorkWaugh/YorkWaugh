@@ -17,3 +17,4 @@ I am playing GTA, Deemo, DDLC...</br>
 - Kafan: [YorkWaugh](https://bbs.kafan.cn/space-uid-1242120.html)
 - Coolapk: [YorkWaugh](https://www.coolapk.com/u/3739606)
 - Telegram: [York Waugh](https://t.me/yorkwaugh)
+- Discord: York Waugh#7987
