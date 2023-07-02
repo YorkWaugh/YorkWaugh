@@ -12,5 +12,4 @@ I am playing GTA, Deemo...</br>
 - Bilibili: [YorkWaugh](https://space.bilibili.com/521883959)
 - Weibo: [YorkWaugh](https://weibo.com/u/6115309015)
 - Mastodon: [@YorkWaugh@mastodon.world](https://mastodon.world/@YorkWaugh)
-- Nostr: [npub1ae7dgqtjql5akc6wylhqnaelfweryzhu8yj00tdsjhvd8lh5kwpq89fy3e](https://snort.social/p/npub1ae7dgqtjql5akc6wylhqnaelfweryzhu8yj00tdsjhvd8lh5kwpq89fy3e)
 - Twitter: [York Waugh](https://twitter.com/york_waugh)
