@@ -11,5 +11,5 @@ I am playing GTA, Deemo...</br>
 - Email: <yorkwaugh@outlook.com.gr>
 - Bilibili: [YorkWaugh](https://space.bilibili.com/521883959)
 - Weibo: [YorkWaugh](https://weibo.com/u/6115309015)
-- Mastodon: [@YorkWaugh@mastodon.world](https://mastodon.world/@YorkWaugh)
+- Mastodon: [YorkWaugh@mastodon.world](https://mastodon.world/@YorkWaugh)
 - Twitter: [York Waugh](https://twitter.com/york_waugh)
