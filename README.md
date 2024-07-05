@@ -1,0 +1,5 @@
+- Email: <yorkwaugh@outlook.com.gr>
+- Bilibili: [YorkWaugh](https://space.bilibili.com/521883959)
+- Weibo: [YorkWaugh](https://weibo.com/u/6115309015)
+- Mastodon: [YorkWaugh@mastodon.world](https://mastodon.world/@YorkWaugh)
+- X: [York Waugh](https://x.com/york_waugh)
